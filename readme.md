@@ -1,6 +1,6 @@
 # The Unverse
 
-A personal collection of writings and meditations on my journey of unforming my mind in the *Unverse* to *Truly* experiment the *Universe*.
+A personal collection of writings and meditations on my journey of unforming my mind in the *Unverse* to *Truly* experience the *Universe*.
 
 ## Content
 
@@ -18,8 +18,9 @@ A personal collection of writings and meditations on my journey of unforming my 
 - [6. Experiencing The *Universe*](#6-experiencing-the-universe)
 - [7. Universal Nirvana](#7-universal-nirvana)
 - [8. Postface](#8-postface)
-- [9. Glossary](#9-glossary)
-- [10. Unlicense](#10-unlicense)
+  - [8.1 Teachers](#81-teachers)
+  - [8.2 Writings](#82-writings)
+- [9. Unlicense](#9-unlicense)
 
 ## 0. Preface
 
@@ -58,7 +59,7 @@ We introduce the following definition to differentiate the absolute *Universe* t
 
 ### 3.2 Metaverse example
 
-A metaverse[^1] is created by our collective consciousness on the perception of the *Universe*.  There maybe one or more metaverses[^2] existing in arbitrary periods of time depending on the conditions of society and the diversity and state of our collective consciousness.  A metaverse can involve small or large numbers of perceivers.  The key here is to establish that many perceptions of the *Universe* exist, across people and time.
+Using the definition provided earlier, a metaverse[^1] is created by our collective consciousness and represents our perception of the *Universe*.  There maybe one or more metaverses[^2] existing in arbitrary periods of time depending on the conditions of society and the diversity and state of our collective consciousness.  A metaverse can involve small or large numbers of perceivers.  The key here is to establish that many perceptions of the *Universe* exist, across people and time.
 
 ### 3.3 Symbols
 
@@ -72,57 +73,57 @@ With the advance of scientific reasoning, our logical perception of the world ha
 
 ### 3.5 Challenges
 
-Misperception and subsequently miscommunication and misunderstanding is at the heart of conflict and suffering.  The metaverses that we create and live fragment our experience of each other, and more fundamentally our experience with the *Universe*.
+Misperception and subsequently miscommunication and misunderstanding is at the heart of conflict and suffering.  The metaverses that we create fragment our natural experiences with each other, and at a more fundamental level, it fragments our experience with the *Universe* itself.
 
-Instead of offering solutions to our current problems, we simply create a new metaverse and hide our existing problems by shifting our perception of current issues.  I am therefore troubled by the creation of [the Metaverse][fb-metaverse], which will only build more layers of abstractions on the *Universe* that we are increasingly failing to understand.
+Instead of offering solutions to our current problems, we simply create new metaverses and hide our existing problems by shifting our perceptions of current issues onto new problems.  I am very troubled by the creation of [the Metaverse][fb-metaverse], which will only build even more layers of abstractions on the *Universe* that we are increasingly detached from.
 
 ## 4. *Nirvana*
 
-A personalized definition of *Nirvana* is given below:
+A powerful definition of *Nirvana* is given below:
 
 > ***Nirvana***: the extinction of concepts.
 
-A natural sub-definition results with:
+And a natural theorem follows:
 
 > ***Nirvana***: the extinction of perceptions.
 
-Nirvana sounds troubling and at odds with the goals of expanding consciousness and free will but it is often misunderstood.  Nirvana itself does not imply limiting consciousness nor giving up free will.  It simply is just a paradoxical concept that extinguishes all concepts.  The mind does not play well in paradox and loops and perhaps a friendlier way to understand *Nirvana* is to "detach from all concepts".
+Nirvana sounds troubling and seems to be at odds with the goals of expanding consciousness and free will but it is often misunderstood.  Nirvana itself does not imply limiting consciousness nor giving up free will.  It simply is just a paradoxical concept of extinguishing all concepts.  The mind does not play well with paradoxes and loops, and a friendlier way to define *Nirvana* is the "detachment from all concepts".
 
 Just by, at least attempting to, describe *Nirvana*, we can see a path out of the layers of metaverses, and a path back to finding and experiencing the *Universe*.
 
 ## 5. The *Unverse*
 
-We introduce with a definition,
+We now define and introduce,
 
 > ***The Unverse***: the mindspace of unforming the *I* symbol.
 
-Of all the symbols in the mind, *I*[^3] is the most powerful symbol.  Every perception and symbol formed by the mind on phenomena in the *Universe* is related back to the *I* symbol.  In every statement we speak in our minds, the *I* symbol is inevitably accessed and reinforced. Even a statement lacking human subjects such as "The table is there" links back to notions of *I* via inferred thoughts such as "I am not the table.  I am here and not there".
+Of all the symbols in the mind, *I*[^3] is the most powerful symbol.  Every perception and symbol formed by the mind on phenomena in the *Universe* is related back to the *I* symbol.  In every statement we speak in our minds, the *I* symbol is inevitably accessed and reinforced. Even a statement lacking human subjects such as "The table is there." links back to notions of *I* via inferred thoughts such as "I am not the table.  I am here and not there.".
 
 The symbol *I* is powerful because it has been reinforced over generations of evolution and passed down through our collective consciousness as a habitual and almsot instinctual thinking.
 
 The *Unverse* is the mindspace to mindfully detach from the symbol *I*.  Just as the thought of *Nirvana* is troubling, the thought of detaching yourself sounds almost like *ethos-cide*, the killing of your character.  But for the same reasons *Nirvana* exposes a path to the real *Universe*, the *Unverse* allows you a chance to mindfully unravel the layers of metaverses and gain a better understanding of the *True I*.
 
-As closing remarks in this chapter, it's a convenient coincidence that the *Unverse* is simply the *Universe* spelled without the letter *i*.  This is as simple a reminder on how to experience the *Universe* by mindfully unforming the *I* symbol (even demoting it to lowercase before removing it!).
+As closing remarks in this chapter, it's a convenient spelling coincidence that "Unverse" is simply "Universe" spelled without the letter *i*.  This is an easy reminder on how to experience the *Universe* by mindfully unforming the *I* symbol (even demoting it to lowercase before removing it!).
 
 ## 6. Experiencing the *Universe*
 
-*Nirvana* and the *Unverse* are troubling insights, but so is the infinite cycles of suffering we are lost in our own perceptions and metaverses.  While our ancestors had less choices on their quality of life, they seemed to have more choices on their quality of mind.  We are losing the genuine connection to the *Universe* through spirituality and seek refuge in metaverses that we create to postpone existing problems.  The problem only worsens with our ability to now create *literal* digital metaverses with increasingly lower cost and frequency.
+*Nirvana* and the *Unverse* are troubling insights, but so is the infinite cycle of suffering that stems from our misperceptions built in the metaverses.  While our ancestors had less choices on their quality of life, they seemed to have more choices on their quality of mind.  We are losing the genuine spiritual connection with the *Universe*.  Instead of seeking refuge in the *Universe*, we create metaverses to hide the source of our suffering or push them onto others.  The problem only worsens with our ability to now create *literal* digital metaverses with increasing frequency and cheaper cost.
 
-*Nirvana* and the *Unverse* opens a path for us to slowly, but surely untangle ourselves from these metaverses.  The ultimate metaverse is sometimes expressed in the [Simulated Universe](https://en.wikipedia.org/wiki/Simulated_reality) argument and can be reasoned as an infinitely layered metaverse.
+*Nirvana* and the *Unverse* opens a path for us to slowly untangle ourselves from these metaverses.  The ultimate metaverse is sometimes expressed in the [Simulated Universe](https://en.wikipedia.org/wiki/Simulated_reality) argument and can be described as an infinitely layered metaverse.
 
-The discussion above on a theoretical infinitely layered metaverses is terrifying and impossible to imagine a way to move out and "break free".  *Nirvana* and the *Unverse* allows us to at the very least recognize and make an attempt to move out of the layers slowly but surely.  The attempt at the very least is noble.
+The discussion above on a theoretical infinitely layered metaverses is terrifying and it is difficult to imagine a way of moving out or breaking free.  *Nirvana* and the *Unverse* allows us to at the very least recognize and make an attempt to move out of the layers slowly.  The attempt is noble at the very least.
 
-But the goal has nothing to do with nobility, hardwork, or perserverance.  There is in fact no goal at all in the journey with *Nirvana* and in the *Unverse*.  If you are on the path, you already have the wish to seek the *True* *Universe*.  That very journey is what we call an *Experience*, and the *Experience* is all that matters.  When we are on that path, we no longer see nor perceive the *Universe*, but we simply experience it.  Even if we are infinitely far from the *Universe*, the *Experience* and journey is all that matters and we reveal ourselves to the *Universe* as it reveals itself to us.
+But the goal has nothing to do with nobility, hardwork, perserverance, belief or faith.  There is in fact no goal or aim in the journey with *Nirvana* and the *Unverse*.  If you are on the path, you already have the wish to seek the *True* *Universe*.  That very journey is what we call an *Experience*, and the *Experience* is all that matters.  When we are on that path, we no longer see nor perceive the *Universe*, but we simply experience it.  Even if we are infinitely far from the *Universe*, the *Experience* and journey is all that matters and we reveal ourselves to the *Universe* as it reveals itself to us.
 
-## *Universal* *Nirvana*
+## 7. *Universal* *Nirvana*
 
 Perceptions of the *Universe* create engineered metaverses, and only from freeing our perceptions in the *Unverse*, can we see a path to *Experience* the *Universe*.
 
 As we walk this path, we realize that the *Unverse* and *Nirvana* are also metaverses and symbolic concepts, and they disappear together.
 
-Yet as we walk, we knew they were the very reasons that led us on this very path.  *Nirvana* and the *Unverse* are no longer the path, they are the path.  The *Universe* is now the path that we walk.  The path becomes the walk, and the walk becomes the path.
+Yet as we walk, we knew they were the very reasons that led us on this very path.  *Nirvana* and the *Unverse* no longer reveal the path, they *are* the path.  The *Universe* is now the path that we walk.  The path becomes the walk, and the walk becomes the path.
 
-The *Universe* is the *Unverse* and is *Nirvana* and is all the metaverses.  The *One/Uni-*verse contains all verses.  What was difficult to unravel now becomes clear and remains clear as long as we are walking the path.
+The *Universe* is the *Unverse* and is *Nirvana* and is all the metaverses.  The *One-*verse contains all-verses.  What was difficult to unravel now becomes clear and remains clear as long as we are walking the path.
 
 And at this very *Present* moment, we smile to ourselves knowing that we are now truly *Experiencing* the *Universe* that we belong to.
 
@@ -130,7 +131,7 @@ And at this very *Present* moment, we smile to ourselves knowing that we are now
 
 As mentioned earlier, my thoughts are only manifested and made possible by all conditions leading up to them.  This section acknowledges what leads up, and continues these very thoughts.
 
-### Teachers
+### 8.1 Teachers
 
 The following teachers guide my thoughts:
 
@@ -141,7 +142,7 @@ The following teachers guide my thoughts:
 - [Loops](https://en.wikipedia.org/wiki/I_Am_a_Strange_Loop)
 - [Thích Nhất Hạnh](https://en.wikipedia.org/wiki/Th%C3%ADch_Nh%E1%BA%A5t_H%E1%BA%A1nh)
 
-### Writings
+### 8.2 Writings
 
 The following writings extend ideas in this document.
 
@@ -149,9 +150,7 @@ The following writings extend ideas in this document.
 - [Meditations](./meditations)
 - [Streams](./streams)
 
-## 9. Glossary
-
-## 10. Unlicense
+## 9. Unlicense
 
 Uncopyright © 2022. This document is unlicensed.  Feel free to do use and distribute as you please.
 
