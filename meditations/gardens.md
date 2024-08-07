@@ -140,4 +140,8 @@ These loose thoughts are not organized in any specific order or flow.
 
 ---
 
+When you impact your surroundings naturally, you are one with Nature.  Just as the bees and butterflies that go about their search for nectar, as do the ants that march for food and tunnel as they build their world, as the roots of trees weave through this improved soil, their very natural and subconscious activities are essential elements in the broader expression of a living Nature.  Do not seek to build your surroundings, but instead forge yourself naturally with your actions that inevitably shape the Natural world around you.
+
+---
+
 The Sun rises, and the ants begin their march, as does Man begins his/her march along. The march changes over the years, as the cars and planes join in.  But as do all marches, we all leave a trail that influences the world around us.  The ants tunnel as the soil aerates and fills in with the roots of plants.  We carve roads and landscapes and terraform a concrete jungle, at times leaving no room for other life to fill in, but almost certainly life fills itself in as weeds and moss and mold finds a way in the concrete cracks, as Nature marches on Herself in terraforming the landscape back. The march goes on, as the Universe observes which march expresses itself in the most beautiful forms, not an end-form, but simply the expressions over a period of time on an infinite timeline.
