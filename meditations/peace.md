@@ -1,0 +1,1 @@
+We speak of peace and harmony, yet our words are laced with conflict and discord.
