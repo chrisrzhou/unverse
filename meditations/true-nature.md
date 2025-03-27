@@ -17,3 +17,7 @@ Meditations on seeing beyond relative symbols formed in the metaverses and into 
 > The symboless world is the wonderous reality of *Nature*.
 
 > When we willingly accept reality, we step into that reality.  But what of the reality prior to stepping in? (of accepting progressive technology, BCI etc)
+
+---
+
+> When you are absolutely certain of a feeling, simply observe that a change in any dimension of the current state (be it the landscape, or the music), might subject the very same situation to a completely different feeling.  What then is/was the "true" feeling?
