@@ -15,3 +15,5 @@ Meditations on seeing beyond relative symbols formed in the metaverses and into 
 > I dwell in *This (God/Love/Peace/Universe/etc)* and hence *This* dwells in me.
 
 > The symboless world is the wonderous reality of *Nature*.
+
+> When we willingly accept reality, we step into that reality.  But what of the reality prior to stepping in? (of accepting progressive technology, BCI etc)
